@@ -24,7 +24,9 @@ _Pintar, hacer deporte (**natación** y bailar) y jugar_
 
 ### 6.  Tu comida favorita
 
-_>Me encanta los macarrones con queso y el salmorejo( sobre todo cuando le le pone mas vinagre)_
+
+> _Me encanta los macarrones con queso y el salmorejo( sobre todo cuando le le pone mas vinagre)_
+
 
 ## 7.  Una foto mia
 
